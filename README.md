@@ -17,5 +17,4 @@ Welcome to **Cat Atrocities** 🎉, your go-to destination for a daily dose of h
 
 ## 🤝 Connect with Me
 
-📧 **Email:** abalamurugan2003@gmail.com<br>
 💼 **LinkedIn:** [Balamurugan A](https://www.linkedin.com/in/balamurugan-a/)<br>
